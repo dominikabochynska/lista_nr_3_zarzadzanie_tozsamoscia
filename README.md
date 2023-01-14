@@ -1,0 +1,1 @@
+# lista_nr_3_zarzadzanie_tozsamoscia
